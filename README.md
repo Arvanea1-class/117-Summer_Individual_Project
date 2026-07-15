@@ -1,1 +1,1 @@
-# 117-Summer_Individual_Project
+# 117-450_Arvanetes_Individual_Project
